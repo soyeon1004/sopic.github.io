@@ -1,1 +1,0 @@
-# sopic.github.io
